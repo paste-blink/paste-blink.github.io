@@ -2,8 +2,8 @@
 
 [UV GUI - Owner - Me😅 link currently broken](https://t.ly/wdU5i)
 
-[Nezur](https://t.ly/L358h)
+[Nezur](https://nezur.net/Nezur_Launcher.zip)
 
-[Nezur (tutorial)](https://t.ly/2nwEP)
+[Nezur (tutorial)](https://youtu.be/pVPp75PKJn8?si=YdTtekEhg4jf-20Y)
 
 
